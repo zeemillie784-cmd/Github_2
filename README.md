@@ -1,2 +1,2 @@
 # Github_2
-for repo
+for the culture
